@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/799f2c7871103745253861b06bc1aefb/690120e6a8a3daa0-65/s640x960/b9711248079070a5beea1f47645ba88f3ab0515c.webp">
 
 <p align=" center">
-<img src="https://64.media.tumblr.com/d650c4ee31a19d7c020f59dbf43a35cd/690120e6a8a3daa0-93/s640x960/e849a435d2ba90909166adc95044f2776321ab3f.webp">
+<img src="https://64.media.tumblr.com/88592ad8e710176858d6d42bdbddaaa7/139cec1c77d3eb2c-66/s500x750/a28fa1e49e84d163beab8421345792fb835e4d6c.webp">
 
 <p align=" center">
 ˖　𝒥℘　 　rody　　𓈒ּུ𓂃༷ 𓈒
